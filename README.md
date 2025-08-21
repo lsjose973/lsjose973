@@ -1,6 +1,8 @@
 ## Hello! ⋆.ೃ࿔*:･ 👋
 
-   I'm a student at Lane Tech High School
+   I'm currently a senior at Lane Tech High School, and I'm a part of Lane Tech's Filipino Club.
+   He/Him
+   
 <!--
 **lsjose973/lsjose973** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
