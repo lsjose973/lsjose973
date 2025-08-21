@@ -4,6 +4,7 @@
    My name is Lyle and I'm currently a **senior** at Lane Tech High School
    - Im a part of Lane's Filipino Club
    - He/Him
+   - I loveeee cats
 
 ### Hobbies ✧･ﾟ: *✧･ﾟ:* :
 
