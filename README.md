@@ -7,6 +7,7 @@
    - I have an older brother who goes to UIUC
    - I plan on studying Computer Science or Engineering
    - I love cats but I'm allergic to them :<
+   - Reach me at @ljose2@cps.edu
 
 ### Hobbies ✧･ﾟ: *✧･ﾟ:* :
 
