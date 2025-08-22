@@ -1,4 +1,4 @@
-# Hello! ⋆.ೃ࿔*:･ 👋
+# Hello! ⋆.ೃ࿔*:･ ◑﹏◐
 ⋇⊶⊰ꕥ⊱⊷⋇
 
    My name is Lyle and I'm currently a **senior** at Lane Tech High School
