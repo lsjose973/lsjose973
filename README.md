@@ -4,7 +4,7 @@
    My name is Lyle and I'm currently a **senior** at Lane Tech High School
    - Im a part of Lane's Filipino Club
    - He/Him
-   - I loveeee cats
+   - I love cats
 
 ### Hobbies ✧･ﾟ: *✧･ﾟ:* :
 
@@ -16,6 +16,7 @@ I love listening to music! Some of my favorites are:
    - Daniel Caesar
    - Frank Ocean
 
+I also like to play video games, piano, and pickleball ٩(◕‿◕)۶
 ![0_A7MUqyCLvZDcHkfM](https://github.com/user-attachments/assets/f2d8225a-8627-41a1-9ad5-ab29a6d50335)
 
 <!--
