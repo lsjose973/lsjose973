@@ -4,6 +4,8 @@
    My name is Lyle and I'm currently a **senior** at Lane Tech High School
    - Im a part of Lane's Filipino Club
    - He/Him
+   - I have an older brother who goes to UIUC
+   - I plan on studying Computer Science or Engineering
    - I love cats but I'm allergic to them :<
 
 ### Hobbies ✧･ﾟ: *✧･ﾟ:* :
