@@ -13,7 +13,7 @@
 I love listening to music! Some of my favorites are:
    - Clairo
    - The Marias
-   - New Jeans
+   - New Jeanspencil
    - Beabadoobee
    - Daniel Caesar
    - Frank Ocean
