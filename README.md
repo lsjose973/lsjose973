@@ -8,6 +8,7 @@
    - I plan on studying Computer Science or Engineering
    - I love cats but I'm allergic to them :<
    - Reach me at @ljose2@cps.edu
+   - My favorite drink is Snapple, specifically the Watermelon and Lemonade flavor
 
 ### Hobbies ✧･ﾟ: *✧･ﾟ:* :
 
